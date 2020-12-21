@@ -1,1 +1,0 @@
-# ivut-konstantin.github.io
